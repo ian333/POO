@@ -1,0 +1,1 @@
+![Image](https://i.ibb.co/3y5tWTs/15-Herencia.png)
